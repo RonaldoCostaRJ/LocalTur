@@ -10,6 +10,8 @@ Link para a Lean Inception realizada no Miro:
  https://miro.com/app/board/uXjVL8QObH0=/?share_link_id=29174703668
  
 Link para o vídeo:
+https://drive.google.com/file/d/15MDTzhE900YdiFbmUF1j7ZNFR9njksBX/view?usp=sharing
+
 
 
 
